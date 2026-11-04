@@ -1,1 +1,1 @@
-
+<div class="tenor-gif-embed" data-postid="1154777271741859672" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/bandori-bang-dream-ave-mujica-avemuji-anime-gif-1154777271741859672">Bandori Bang Dream GIF</a>from <a href="https://tenor.com/search/bandori-gifs">Bandori GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
