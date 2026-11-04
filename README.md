@@ -1,1 +1,1 @@
-https://www.youtube.com/watch?v=wv9OB1Cko88
+https://tenor.com/es-419/view/bandori-bang-dream-ave-mujica-avemuji-anime-gif-1154777271741859672
