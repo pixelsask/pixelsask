@@ -2,5 +2,7 @@
 <img width="498" height="281" alt="bandori-bang-dream" src="https://github.com/user-attachments/assets/b18c8aff-5412-4130-9be7-d7665394e154" />
 
 Hii, welcome to my pfp
+
 Here i´ll probably do math practice if i have time or if i don´t forget that GitHub exists
+
 <div align="center">
